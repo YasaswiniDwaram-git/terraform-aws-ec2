@@ -1,12 +1,4 @@
-hey ....
 
-so
-
-i 
-
-love 
-
-satya
 
 # infor
 
